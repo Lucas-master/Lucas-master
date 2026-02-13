@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lucas-master
+- 👋 Hi, I’m @helper
 - 👀 I’m interested in chattings 
 - 🌱 I’m currently studying
 - 💞️ I’m most friendly person 
